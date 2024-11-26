@@ -1,0 +1,1 @@
+# karnataka-assembly-result-2023
